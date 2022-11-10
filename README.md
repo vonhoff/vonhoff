@@ -1,6 +1,6 @@
-# Hi! I'm Simon
+# Hi! I'm Simon.
 
-***An apprentice software developer with a passion for backend and graphics programming.***
+**I'm an apprentice software developer with a passion for backend and graphics programming.**
 
 ## My GitHub stats
 
