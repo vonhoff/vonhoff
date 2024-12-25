@@ -1,1 +1,1 @@
-> It's fascinating how limitations of the system push your creativity to the max.
+> Alles wat je doet – in de breedste zin van het woord – moet van hoge kwaliteit zijn, dan loopt de rest vanzelf.
