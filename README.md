@@ -1,1 +1,1 @@
-> Alles wat je doet – in de breedste zin van het woord – moet van hoge kwaliteit zijn, dan loopt de rest vanzelf.
+born to be alive is niet van de village people
