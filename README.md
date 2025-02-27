@@ -1,1 +1,1 @@
-born to be alive is niet van de village people
+> Свинья в золотом ошейнике всё свинья
